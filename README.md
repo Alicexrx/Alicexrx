@@ -1,4 +1,4 @@
-## Hi there 👋
+## olá fofaa prazer Alice 
 
 <!--
 **Alicexrx/Alicexrx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+.![](https://media1.tenor.com/m/oSvUMBb6D_AAAAAd/transfem-trans.gif)
+.![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExaG1lcHJzOXkzYW5wbHYzYTRwZWhwbTN1cmw0MXcxdWd6YXM4YXFxZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/RLNC2mdXX5bUVjjUC7/giphy.webp)
+.![](https://media4.giphy.com/media/bqd0WA0cJDAL5uZ4pT/giphy.webp?cid=790b7611uupsvdq3bgfndoatiam8p6ro2gdc0mwjg10axo4k&ep=v1_gifs_search&rid=giphy.webp&ct=g)
+.![](https://media4.giphy.com/media/jbMUxNkuWXDuc7BT8m/giphy.webp?cid=790b7611uupsvdq3bgfndoatiam8p6ro2gdc0mwjg10axo4k&ep=v1_gifs_search&rid=giphy.webp&ct=g)
